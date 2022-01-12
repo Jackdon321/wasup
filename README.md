@@ -1,3 +1,3 @@
 # wasup
 Idk
-i like :coffie: and :pizza:
+i like :coffee: and :pizza:
